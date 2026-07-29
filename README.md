@@ -1,7 +1,6 @@
 # Hi, I'm Vanessa 👋
 
 🎓 Master of Arts in Public Mental Health  
-📍 Miami, Florida  
 💼 Aspiring Behavioral Health & Community Health Professional  
 
 ---
